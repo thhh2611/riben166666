@@ -22,4 +22,4 @@
 
 隐私保护全面启用，无痕模式默认开启，观看无记录，使用更安心。立即点击任意链接，开启你专属的高清日本AV之旅！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben166666 ）</span> 
